@@ -12,4 +12,4 @@ saveNatureFree.org
 GroupsStartup.net
 Links-Plus2.weebly.com
 
-
+Any web developer or site admin will want to know about this development. A virtual cloud is something that exists on the web as well as in our mind. The bots crawling the web send data to SQL data bases where your SEO value is calculated 
