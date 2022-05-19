@@ -1,4 +1,4 @@
- 👋 Hi, I’m @AlexReid1
+ 👋 Hi, I’m @AlexReid1 know very little about Git hub.    
 
  👀 I’m interested in Links ai cripto tokens in the VR cloud tribes networks of note Links-plus2
 
