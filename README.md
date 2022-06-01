@@ -1,8 +1,8 @@
- 👋 Hi, I’m @AlexReid1 know very little about Git hub.    
+ 👋 Hi, I’m @AlexReid1 contact me if you want to be an admin at Links plus two. I devalop virtuial block tokens (VBT) I am an environmentalist social web pages devaloper with p2tp-vaiscope.net. I know very little about Git hub.    2 blank
 
- 👀 I’m interested in Links ai cripto tokens in the VR cloud tribes networks of note Links-plus2
+ 👀 I’m interested in Links ai and human spicific blockchaain cripto tokens, most in the VR cloud of tribes, Network of note Links-plus2.weebly.com
 
- 🌱 I’m currently learning links-plus2 SEO posistioning 
+ 🌱 I’m currently learning links-plus2 SEO posistioning, interesting thing is all you need to be in the power group is 2 team mates on your links-plus page. 
 
  💞️ I’m looking to collaborate on p2tp-vaiscope, hemp farming, building with hemp,and tokens from our farm. 
 
